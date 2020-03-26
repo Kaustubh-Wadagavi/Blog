@@ -22,5 +22,6 @@ When it was clear that Amelio was not working well, they offered Jobs the CEO po
 
 After, three months Apple's Board Selected Steve Jobs as, "the CEO of the Apple Company." Then, Jobs launched I-Pods and I-Tune Stores in 2002. Then, he developed I-Phones. Then, created I-Pads in 2010. Jobs resigned from the CEO position at Apple in August 2011. He appointed Tim Cook as the new CEO of the "Apple".
 
-***First Thing we want to learn from Steve Jobs is if we got failure from anything then don’t think about that failure, Just think How to move on forward. (For Example, He got removed from Apple, Then he Built The “NEXT” company. The "NEXT" company gets aquired by the "Apple". And the Jobs becomes CEO of the Apple.)
-Steve told that in one of his speeches that, "we should stand in front of the mirror daily and ask one question to ourselves that, Do I love what I'm doing?" If the Answer comes "NO" daily, then we have to "change our work."***
+***First Thing we want to learn from Steve Jobs is if we got failure from anything then don’t think about that failure, Just think How to move on forward. (For Example, He got removed from Apple, Then he Built The “NEXT” company. The "NEXT" company gets aquired by the "Apple". And the Jobs becomes CEO of the Apple.)***
+
+***Steve told that in one of his speeches that, "we should stand in front of the mirror daily and ask one question to ourselves that, Do I love what I'm doing?" If the Answer comes "NO" daily, then we have to "change our work."***
