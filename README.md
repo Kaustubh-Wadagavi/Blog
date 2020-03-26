@@ -1,6 +1,6 @@
 
 
-<h1>Steve Jobs<\h1>
+<h1>Steve Jobs</h1>
 Steve Jobs was the biological son of John Jandali and Joanne Schieble. However, Schieble’s family disapproved of her relationship with Jandali, a Muslim. But, he was adopted by Paul and Clara Jobs.
 
 Steve wasn't studied well so he hasn't got any degree. But, He built the big empire named as an apple.
