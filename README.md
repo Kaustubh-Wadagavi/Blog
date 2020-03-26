@@ -3,7 +3,7 @@
 <h1>Steve Jobs: Ek Zapatlela Tantradya</h1>
 Steve Jobs was the biological son of John Jandali and Joanne Schieble. However, Schieble’s family disapproved of her relationship with Jandali, a Muslim. But, he was adopted by Paul and Clara Jobs.
 
-Steve wasn't studied well so he hasn't got any degree. But, He built the big empire named as an apple.
+Steve wasn't studied well so he hasn't got any degree. But, He built the big empire named as the "Apple".
 
 The Apple company born in the small garage. The Steve Jobs started doing work with his brother Steve Wozniak. Before starting the company, Their first project together called Blue Box used frequencies to make long-distance calls for free. During that time the computer revolution was being born in Silicon Valley, Wozniak saw a microprocessor for the first time. This gave him the idea for the modern computer with Keyboard, screen, and computer in one. Jobs and Wozniak labored hard to produce over a hundred computers in one month. The Apple one was profitable in 30 days. When the Apple Two was released, the success was outstanding.
 
